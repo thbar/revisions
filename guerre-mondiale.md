@@ -1,4 +1,6 @@
-- La seconde guerre mondiale est une guerre d'anéantissement -> presque sur tous les continents et les océans. Et les colonies.
+## 1ère partie : la seconde guerre mondiale est une guerre d'anéantissement
+
+- presque sur tous les continents et les océans. Et les colonies.
 - Début japon envahit chine 1937. Vrai début le 1er septembre 1939 ; l'Allemagne envahit la pologne. Guerre devient mondiale.
 - Les alliés : chine (juillet 1937), france et royaume uni (3 septembre 1939), URSS (22 juin 1941), USA (7 décembre 1941)
 - L'Axe : Italie fasciste (Benito Mussolini rêve d'empire), Allemagne nazie (Reich, pangermanisme), Japon impérial (archipel, veut des ressources)
@@ -15,3 +17,15 @@ CARTES p66/67
 2 developpements construits:
 1. Gagner la guerre
 2. Le bilan de la seconde guerre mondiale
+
+## 2ème partie - les civils au coeur d'une idéologie d'extermination
+
+- génocide des juifs et des tsiganes dans l'europe nazie (p70/71)
+  
+- front de l'est ; guerre d'anéantissement (p68/69)
+  - violence de masse sur lescivils (non juifs et juifs), dégâts collatéraux; SS.
+  - violences extrêmes subies par les soldats / panoplies d'armes. Prisonniers ne survivent souvent pas (faim, froid, épuisement).
+  - bilan effroyable de la guerre à l'est : destruction maximale volontaire (resources, populations civiles et militaires). Nazis = peu de considération pour la vie des juifs et des slaves. Armée rouge = vols et viols durant la reconquête puis conquête de l'allemagne.
+  
+
+## 3ème partie
